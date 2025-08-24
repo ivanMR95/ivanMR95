@@ -39,5 +39,4 @@
 ---
 
 ## 🌐 Encuéntrame
-- [LinkedIn](www.linkedin.com/in/iván-martínez-974480216)  
-
+- [LinkedIn](www.linkedin.com/in/iván-martínez-974480216)
